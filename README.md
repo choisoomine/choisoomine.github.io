@@ -1,1 +1,1 @@
-# choisoomine.github.io
+# 최수민의 홈페이지
